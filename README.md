@@ -1,8 +1,9 @@
 # s3-class-wors
 csv.,/csvcd"bcd'
-
-cx/ cxd 
-bdvb vdf b
-\vf bvdc 
+vdsbvbvbv
+cx/ cxddgbdvb
+bdvb vdfb vb  b
+\vf bvdc vd bvd bvdbvfdbfv
 v vfd vf
- bgvf
+ bgvfvb vb vb v
+v bvd bvdv bv
